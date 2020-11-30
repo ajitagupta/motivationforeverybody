@@ -4,7 +4,7 @@ The problem also isn’t a lack of willpower, even though conventional
 wisdom would have us think that greater willpower is what separates the
 achievers from the dreamers.
 
-### Motivation Is Not the Spark
+# Motivation Is Not the Spark
 I thought motivation was a
 prerequisite to starting a tedious learning process—a spark necessary to get me
 going. But motivation is really a result. Motivation is the fire that starts burning
@@ -40,6 +40,7 @@ In short, the process looks like this:
 Success → Motivation → More Success → More Motivation → More
 Success = Becoming
 
+# The Greater Your Focus, the Lower Your Chances of Success
 Incredibly successful people set a goal and then focus all their attention on
 the process necessary to achieve that goal. They set a goal and then, surprisingly,
 they forget the goal.
@@ -55,3 +56,34 @@ all.
 To accomplish anything worthwhile, and especially to achieve a goal others
 say is impossible, you have to work your ass off. There are no shortcuts. The
 only way is the hard way.
+
+The key is to set a goal, use it as a target that helps you create a plan for
+achieving it . . . and then do your best to forget all about that goal.
+As I learned
+from James Clear, a leading thinker on the subject, the best use of a goal is to
+inform the process you will follow to achieve it.
+What’s the difference between a goal and a process?
+
+* If you’re a manager, your goal is to develop your employees. Your
+process is how you identify areas for improvement, create implementation
+plans, follow through on training and coaching and feedback. Your
+process is what you do to make your goal happen.
+* If you’re a teacher, your goal is to help your students reach their potential.
+Your process is how you craft your lectures, create slides and ancillary
+materials, find ways to motivate individual students. Your process is what
+you do to make your goal happen.
+* If you’re a parent, your goal is to raise healthy, happy kids. Your process
+is how you build your children’s self-confidence and self-esteem, nurture
+their dreams, instill important values. Your process is what you do to
+make your goal happen.
+
+Everyone has goals. The people who actually achieve their goals create
+routines. They build systems. They consistently take the steps that, in time, will
+ensure they reach their ultimate goal.They don’t wish. They don’t hope.
+They just do what their plan says, consistently and without fail.
+They forget the goal and focus solely on the process.
+
+Forgetting Your Goal Unleashes the Power of Feedback. If your process is one designed to get you where you eventually want to go,
+all you have to do is work your process—and sticking with your process is so
+much easier when you create that self-reinforcing feedback loop of Success →
+Motivation → More Success → More Motivation → More Success.

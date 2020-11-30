@@ -9,6 +9,15 @@ satisfaction of seeing yourself make progress. The problem with waiting for
 motivation to strike is that it almost never comes with enough voltage to actually
 get you started.
 
+Most people are confused about the source of motivation. They think
+motivation is the spark that automatically produces lasting eagerness to do hard
+work; the greater the motivation, the more effort you’re willing to put in.
+Actually, motivation is a result. Motivation is the pride you take in work
+you have already done—which fuels your willingness to do even more.
+That’s why tips for how to feel more motivated often fall short. Most of that
+advice can be boiled down to “You can be more motivated. All you have to do is
+dig deep into your mind and find that motivation within.”
+
 Small successes are fun—and motivating.
 That’s why you already have everything you need.
 That’s why motivation isn’t something you have. Motivation is something

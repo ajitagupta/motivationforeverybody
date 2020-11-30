@@ -25,3 +25,7 @@ set out to do today, and that sense of accomplishment gives them all the
 motivation they need to do what they need to do when tomorrow comes—
 because success, even tiny, incremental success, is the best motivational tool of
 all.
+
+To accomplish anything worthwhile, and especially to achieve a goal others
+say is impossible, you have to work your ass off. There are no shortcuts. The
+only way is the hard way.

@@ -36,6 +36,10 @@ Each little success gives you confidence. The accumulation of small successes
 makes the process, um, maybe not fun, but definitely rewarding—and that’s all
 you need to keep going.
 
+In short, the process looks like this:
+Success → Motivation → More Success → More Motivation → More
+Success = Becoming
+
 Incredibly successful people set a goal and then focus all their attention on
 the process necessary to achieve that goal. They set a goal and then, surprisingly,
 they forget the goal.

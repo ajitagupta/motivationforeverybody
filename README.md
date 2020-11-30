@@ -24,6 +24,9 @@ That’s why motivation isn’t something you have. Motivation is something
 you get, from yourself, automatically, from feeling good about achieving small
 successes.
 
+The key is to enjoy the feeling of success that comes from improving in
+some small way . . . and then rinse and repeat, over and over again.
+
 Incredibly successful people set a goal and then focus all their attention on
 the process necessary to achieve that goal. They set a goal and then, surprisingly,
 they forget the goal.

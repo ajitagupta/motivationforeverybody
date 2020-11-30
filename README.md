@@ -31,6 +31,11 @@ successes.
 The key is to enjoy the feeling of success that comes from improving in
 some small way . . . and then rinse and repeat, over and over again.
 
+Hopefully you see where this is going. Each little success is motivating.
+Each little success gives you confidence. The accumulation of small successes
+makes the process, um, maybe not fun, but definitely rewarding—and that’s all
+you need to keep going.
+
 Incredibly successful people set a goal and then focus all their attention on
 the process necessary to achieve that goal. They set a goal and then, surprisingly,
 they forget the goal.

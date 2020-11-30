@@ -1,5 +1,9 @@
 # motivationmyth
 
+The problem also isn’t a lack of willpower, even though conventional
+wisdom would have us think that greater willpower is what separates the
+achievers from the dreamers.
+
 ### Motivation Is Not the Spark
 I thought motivation was a
 prerequisite to starting a tedious learning process—a spark necessary to get me

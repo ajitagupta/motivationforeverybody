@@ -1,5 +1,6 @@
 # motivationmyth
 
+### Motivation Is Not the Spark
 I thought motivation was a
 prerequisite to starting a tedious learning process—a spark necessary to get me
 going. But motivation is really a result. Motivation is the fire that starts burning

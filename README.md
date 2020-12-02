@@ -88,6 +88,7 @@ all you have to do is work your process—and sticking with your process is so
 much easier when you create that self-reinforcing feedback loop of Success →
 Motivation → More Success → More Motivation → More Success.
 
+# Your Goal Must Always Choose Your Process
 1. Start with a fast day.
 2. Exercise first thing every morning.
 3. Eat four almonds fifteen minutes before every meal.
@@ -104,3 +105,67 @@ Motivation → More Success → More Motivation → More Success.
 Inevitable success is the best success of all—and it will happen when you
 set your goal, forget your goal, and focus on working your process.
 
+So what is the best way to say no to yourself? It’s easy: Stop saying “can’t”
+and start saying “don’t.”
+It works. Science says so. Researchers conducted a study:
+1. YOU CAN’T MAKE EXCUSES TO YOURSELF.
+2. YOU COME ACROSS AS MORE CONFIDENT.
+3. YOU WON’T GET AS MUCH PUSHBACK ON YOUR
+RESOLUTIONS.
+
+# Happiness Comes to Serial Achievers
+So go ahead. Be a professional serial achiever. Embrace your “and.” Take
+the steps that let you include an “and” in the way you describe yourself
+professionally.
+
+Think about what you do well, or would like to do well, and, most
+important, would really enjoy doing. Don’t choose an “and” you feel you should
+choose. Pick a side hustle your inner twenty-year-old will love. Being a serial
+achiever is a chance to explore, to delve, to expand, even to indulge—but with a
+purpose.
+
+Maybe starting a small business on the side would be fun. Maybe teaching
+or consulting or working part time or volunteering or going back to school
+would be fun. It doesn’t matter what “and” you choose, as long as it is
+something you really want to do.
+Then you get to recharge and refresh, pick up new perspectives, and bring
+certain skills back to your primary role . . . or roles.
+
+The beauty of serial achievement is that over time you become more than one
+thing. You can be a Web designer and a musician and an athlete . . . and then
+you can become something else as well, knowing that when you have achieved a
+certain level of skill or experience you can work to achieve something else.
+Plus, the skill you gain will not be wasted if or when you move on to
+another pursuit. Except for unusual skills—like tech skills, which are constantly
+on the verge of becoming obsolete even for full-time programmers and
+developers—the skills you gain will stay in your tool kit. While over time you
+will naturally lose some degree of proficiency, you will always retain the core
+skill and will be able to quickly tune yourself up again if necessary.
+Think of it this way: Strength is hard to build the first time, but regaining
+strength lost is much easier.
+
+If you’re not happy, rethink your definition of success. The one you have is
+not working for you. You can’t have it all. You shouldn’t want to have it all
+because that’s the best way to wind up unhappy and unfulfilled.
+But you can have a lot more than you currently do, whether what you want
+more of is professional or personal success.
+So start pursuing the goals that will make you happy.
+
+That’s another thing no one tells you about goals. You may want it to be one
+way—the way that lets you pursue anything you want without regard to money
+or health or relationships—but it’s the other way.
+And it always will be. Just ask anyone who ignored the basics in his life (it’s
+almost always men) to pursue a goal . . . only to feel empty and hollow because
+the “trophy” on the mantel came at too high a cost.
+Happiness requires evenly balancing your multiple nonnegotiable goals,
+blending in a negotiable goal where appropriate . . . and never, ever forgetting to
+self-evaluate along the way to ensure the balance never gets out of whack. For
+brief periods of time it’s okay if that balance is off, but do that for long, and
+everything falls apart: your motivation, your confidence, your small successes—
+and ultimately, your happiness.
+
+Because success isn’t truly success . . . unless you’re happy.
+
+To make it simple, answer these two questions.
+Are You Comfortable Financially?
+Are You Relatively Fit and Healthy?

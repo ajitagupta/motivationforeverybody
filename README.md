@@ -87,3 +87,20 @@ Forgetting Your Goal Unleashes the Power of Feedback. If your process is one des
 all you have to do is work your process—and sticking with your process is so
 much easier when you create that self-reinforcing feedback loop of Success →
 Motivation → More Success → More Motivation → More Success.
+
+1. Start with a fast day.
+2. Exercise first thing every morning.
+3. Eat four almonds fifteen minutes before every meal.
+4. Drink a glass of water right before every meal.
+5. Always stop eating the moment you start to feel full.
+6. Don’t eat anything white.
+7. Make sure every meal is healthy.
+8. Toss in a snack.
+9. Burn about five hundred extra calories a day.
+10. Cheat wisely.
+11. Keep a food journal.
+12. Check off each step in the process.
+
+Inevitable success is the best success of all—and it will happen when you
+set your goal, forget your goal, and focus on working your process.
+

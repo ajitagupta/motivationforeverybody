@@ -209,3 +209,10 @@ Here are some tips you can start using today to help you
 accomplish what you want to accomplish, without needing to possess incredible
 willpower—or, really, any willpower at all.
 The process starts with designing your life so it supports your goals.
+Step 1: Eliminate as many choices as possible.
+Step 2: Make decisions tonight so you won’t need to make them
+tomorrow.
+Step 3: Do the hardest things you need to do first.
+Step 4: Refuel often.
+Step 5: Create reminders of your long-term goals.
+Step 6: Remove temptation altogether.

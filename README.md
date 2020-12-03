@@ -169,3 +169,15 @@ Because success isn’t truly success . . . unless you’re happy.
 To make it simple, answer these two questions.
 Are You Comfortable Financially?
 Are You Relatively Fit and Healthy?
+
+# Wishing and Hoping Is the Most Unrealistic Approach of All
+Set a goal.
+Then look at what is required to achieve that goal. What you need to do may
+not be what you want to do, and that’s okay. Let everyone else take an
+unrealistic approach and then wonder why they aren’t achieving more.
+Be “unrealistic” when you set a goal, and then be realistic about how you
+will achieve that goal.
+Then your goal will become realistic, because you have a plan in place that
+will allow you to achieve that goal.
+Dream as big as you like. Then make sure your plan matches your dream.
+

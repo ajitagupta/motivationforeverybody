@@ -209,6 +209,7 @@ Here are some tips you can start using today to help you
 accomplish what you want to accomplish, without needing to possess incredible
 willpower—or, really, any willpower at all.
 The process starts with designing your life so it supports your goals.
+
 Step 1: Eliminate as many choices as possible.
 Step 2: Make decisions tonight so you won’t need to make them
 tomorrow.
@@ -216,3 +217,25 @@ Step 3: Do the hardest things you need to do first.
 Step 4: Refuel often.
 Step 5: Create reminders of your long-term goals.
 Step 6: Remove temptation altogether.
+
+# One Question Provides Nearly Every Answer
+Ask yourself, “Will this keep me
+from following my process?”
+If it will, don’t do it.
+Process is everything. Routine is everything.
+Let nothing stand in its way.
+
+# Why Work Smarter When You Can Work Your Number?
+
+Working your number is based on consistently doing, over and over and over
+again, the things that make the biggest difference in your life. In short, working
+
+your number is about grinding: working hard every day to achieve your long-
+term goals. improving—at anything—is always fun.
+
+Reaching and Repeating: Try to do what you can’t do—yet. That’s how you learn.
+Engagement: Practice must command your attention and make you feel emotionally invested
+in striving for a goal. You’ll try harder and be more engaged, and you’ll improve more rapidly.
+Purposefulness: Practice must directly connect to the skill you want to build.
+Strong, Speedy Feedback: Practice must provide an immediate and consistent flow of accurate information
+about performance.

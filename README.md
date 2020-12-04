@@ -248,3 +248,41 @@ Whom you choose to admire—and it is a choice—says more about you than
 about that person. We tend to admire certain people because we see something
 of ourselves in them. We like to think that what they do and how they do it
 indicates what we would do if given the chance.
+It doesn’t matter whom you admire. It doesn’t matter whom you look to for
+inspiration; you’re seeking more of a blueprint for success. Whom you choose is
+important only in that their approach to success will help you achieve your goals.
+You can even take a counterintuitive approach and think well outside the
+hero box. Think of someone who is extremely successful but whom you would
+normally never dream of emulating.
+
+And then, if what you’ve done so far hasn’t taken you where you want to go,
+take a bigger swing at the emulation target. Learn as much as you can about that
+person and adopt as many of their habits and routines as you possibly can.
+
+Pros show you how to succeed—and
+expect you to take full responsibility for your own success.
+
+Stop comparing yourself with yourself. Stop comparing yourself with the
+people around you. Go see a superstar in action. Whether it’s a speaker, a
+musician, a performer, an athlete, or an entrepreneur, find a way to expose
+yourself to exceptional skill, exceptional expertise, and exceptional talent.
+
+When you spend time with a superstar, when you try to do what the pros do,
+that experience will automatically ratchet your own internal limits to a higher
+level. While you may never be as good, when superstar performance is your bar,
+you automatically set your goals higher—and that makes you achieve more. Stop
+comparing your present self with your past self.
+Start comparing your present self—regardless of how far you think you have
+already come—with what is actually possible.
+Stop looking back. Start looking forward to see how far you can still go.
+And then work hard to get there. Do what the pros do.
+You may never be as talented as the absolute best in the field or pursuit you
+choose, but you will definitely achieve much more than your self-imposed limits
+allowed you to think was ever possible.
+
+Embrace the challenge, embrace the “pain,” embrace the fact that you
+will stretch and push yourself beyond your normal limits . . . because every time
+you do, you’ll feel motivated to do it again.
+And in time you’ll find yourself living the life you want to live.
+
+## Do More by Doing Less

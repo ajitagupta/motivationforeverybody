@@ -1,10 +1,10 @@
-# motivationmyth
+# Motivation for Everybody
 
 The problem also isn’t a lack of willpower, even though conventional
 wisdom would have us think that greater willpower is what separates the
 achievers from the dreamers.
 
-# Motivation Is Not the Spark
+## Motivation Is Not the Spark
 I thought motivation was a
 prerequisite to starting a tedious learning process—a spark necessary to get me
 going. But motivation is really a result. Motivation is the fire that starts burning
@@ -40,7 +40,7 @@ In short, the process looks like this:
 Success → Motivation → More Success → More Motivation → More
 Success = Becoming
 
-# The Greater Your Focus, the Lower Your Chances of Success
+## The Greater Your Focus, the Lower Your Chances of Success
 Incredibly successful people set a goal and then focus all their attention on
 the process necessary to achieve that goal. They set a goal and then, surprisingly,
 they forget the goal.
@@ -88,7 +88,7 @@ all you have to do is work your process—and sticking with your process is so
 much easier when you create that self-reinforcing feedback loop of Success →
 Motivation → More Success → More Motivation → More Success.
 
-# Your Goal Must Always Choose Your Process
+## Your Goal Must Always Choose Your Process
 1. Start with a fast day.
 2. Exercise first thing every morning.
 3. Eat four almonds fifteen minutes before every meal.
@@ -113,7 +113,7 @@ It works. Science says so. Researchers conducted a study:
 3. YOU WON’T GET AS MUCH PUSHBACK ON YOUR
 RESOLUTIONS.
 
-# Happiness Comes to Serial Achievers
+## Happiness Comes to Serial Achievers
 So go ahead. Be a professional serial achiever. Embrace your “and.” Take
 the steps that let you include an “and” in the way you describe yourself
 professionally.
@@ -170,7 +170,7 @@ To make it simple, answer these two questions.
 Are You Comfortable Financially?
 Are You Relatively Fit and Healthy?
 
-# Wishing and Hoping Is the Most Unrealistic Approach of All
+## Wishing and Hoping Is the Most Unrealistic Approach of All
 Set a goal.
 Then look at what is required to achieve that goal. What you need to do may
 not be what you want to do, and that’s okay. Let everyone else take an
@@ -181,7 +181,7 @@ Then your goal will become realistic, because you have a plan in place that
 will allow you to achieve that goal.
 Dream as big as you like. Then make sure your plan matches your dream.
 
-# To Gain Incredible Willpower . . . Need Less Willpower
+## To Gain Incredible Willpower . . . Need Less Willpower
 The purpose of this book is to help you achieve huge goals. But
 accomplishing a huge goal takes time.
 So let’s start small. Success → Motivation → More Success → More
@@ -218,14 +218,14 @@ Step 4: Refuel often.
 Step 5: Create reminders of your long-term goals.
 Step 6: Remove temptation altogether.
 
-# One Question Provides Nearly Every Answer
+## One Question Provides Nearly Every Answer
 Ask yourself, “Will this keep me
 from following my process?”
 If it will, don’t do it.
 Process is everything. Routine is everything.
 Let nothing stand in its way.
 
-# Why Work Smarter When You Can Work Your Number?
+## Why Work Smarter When You Can Work Your Number?
 
 Working your number is based on consistently doing, over and over and over
 again, the things that make the biggest difference in your life. In short, working
@@ -233,9 +233,18 @@ again, the things that make the biggest difference in your life. In short, worki
 your number is about grinding: working hard every day to achieve your long-
 term goals. improving—at anything—is always fun.
 
-Reaching and Repeating: Try to do what you can’t do—yet. That’s how you learn.
-Engagement: Practice must command your attention and make you feel emotionally invested
+* Reaching and Repeating: Try to do what you can’t do—yet. That’s how you learn.
+* Engagement: Practice must command your attention and make you feel emotionally invested
 in striving for a goal. You’ll try harder and be more engaged, and you’ll improve more rapidly.
-Purposefulness: Practice must directly connect to the skill you want to build.
-Strong, Speedy Feedback: Practice must provide an immediate and consistent flow of accurate information
+* Purposefulness: Practice must directly connect to the skill you want to build.
+* Strong, Speedy Feedback: Practice must provide an immediate and consistent flow of accurate information
 about performance.
+* Focus on other people: Work your number by giving. Greater Autonomy and Independence, Clearer Expectations, More Meaningful Objectives, Give a Better Sense of Purpose, Give More Opportunities to Provide Significant Input, Give a Better Sense of Connection, Give Greater Consistency, Give Private Criticism, Give Public Praise, Give Everyone a Chance for a Meaningful Future, Compliment them for something
+they would least expect. (Expected feels good. Unexpected makes an even bigger impact.). Then you can use that gratification and fulfillment to motivate you to try the
+next strategy.
+
+## You Don’t Need a Coach; You Need a Pro
+Whom you choose to admire—and it is a choice—says more about you than
+about that person. We tend to admire certain people because we see something
+of ourselves in them. We like to think that what they do and how they do it
+indicates what we would do if given the chance.

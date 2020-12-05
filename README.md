@@ -310,3 +310,15 @@ make you happier.
 Instead of doing a total professional or personal makeover, the easiest way is to
 start small. Here are some basic things to eliminate that will free up chunks of
 time to allow you to spend more of your time doing what you do best.
+
+## The Bottom Line
+If you have doubts or fears, you’re not alone. Everyone else has, or had, the
+same fears. Take heart in that fact—and then hold your leg down and keep
+charging. You’ll find you had nothing to be afraid of . . . and that you can
+overcome other fears you may have.
+If you’re feeling low, put your head down and focus on your process. You’ll
+improve—and you’ll gain the motivation you feel you lack.
+Your dreams are important, but your plan is what will allow you to achieve
+your goals and live out your dreams.
+Don’t wait for motivation. Get started. Work your plan.
+When you do, you’ll find all the motivation you need.

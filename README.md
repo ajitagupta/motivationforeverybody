@@ -50,17 +50,6 @@ If you're not happy, rethink your definition of success. The one you have is not
 because that’s the best way to wind up unhappy and unfulfilled. But you can have a lot more than you currently do, whether what you want more of is professional or personal success. So start pursuing the goals that will make you happy. Because success isn’t truly success . . . unless you’re happy.
 
 
-## Wishing and Hoping Is the Most Unrealistic Approach of All
-Set a goal.
-Then look at what is required to achieve that goal. What you need to do may
-not be what you want to do, and that’s okay. Let everyone else take an
-unrealistic approach and then wonder why they aren’t achieving more.
-Be “unrealistic” when you set a goal, and then be realistic about how you
-will achieve that goal.
-Then your goal will become realistic, because you have a plan in place that
-will allow you to achieve that goal.
-Dream as big as you like. Then make sure your plan matches your dream.
-
 ## To Gain Incredible Willpower . . . Need Less Willpower
 The purpose of this book is to help you achieve huge goals. But
 accomplishing a huge goal takes time.

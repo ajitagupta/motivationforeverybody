@@ -2,6 +2,7 @@
 
 Motivation is known to be a prerequisite to starting a tedious learning process—a spark necessary to get you going. In this post, we uncover the myths behind what motivation really is and where to get it from. This is for everyone who hasn't achieved ... yet!
 
+
 ## Motivation Is Not the Spark
 
 The problem also isn’t a lack of willpower, even though conventional wisdom would have us think that greater willpower is what separates the achievers from the dreamers. The real problem is *motivation*.
@@ -24,32 +25,20 @@ The key is to set a goal, use it as a target that helps you create a plan for ac
 * If you’re a teacher, your goal is to help your students reach their potential. Your process is how you craft your lectures, create slides and ancillary materials, find ways to motivate individual students.
 * If you’re a parent, your goal is to raise healthy, happy kids. Your process is how you build your children’s self-confidence and self-esteem, nurture their dreams, instill important values.
 
-Everyone has goals. The people who actually achieve their goals create routines. They build systems. They consistently take the steps that, in time, will ensure they reach their ultimate goal. They don’t wish. They don’t hope. They just do what their plan says, consistently and without fail. They forget the goal and focus solely on the process.
 
-## Your Goal Must Always Choose Your Process
-1. Start with a fast day.
-2. Exercise first thing every morning.
-3. Eat four almonds fifteen minutes before every meal.
-4. Drink a glass of water right before every meal.
-5. Always stop eating the moment you start to feel full.
-6. Don’t eat anything white.
-7. Make sure every meal is healthy.
-8. Toss in a snack.
-9. Burn about five hundred extra calories a day.
-10. Cheat wisely.
-11. Keep a food journal.
-12. Check off each step in the process.
+## How to Create a Successful Process
 
-Inevitable success is the best success of all—and it will happen when you
-set your goal, forget your goal, and focus on working your process.
+Let’s start with what you need to do in order to succeed.
 
-So what is the best way to say no to yourself? It’s easy: Stop saying “can’t”
-and start saying “don’t.”
-It works. Science says so. Researchers conducted a study:
-1. YOU CAN’T MAKE EXCUSES TO YOURSELF.
-2. YOU COME ACROSS AS MORE CONFIDENT.
-3. YOU WON’T GET AS MUCH PUSHBACK ON YOUR
-RESOLUTIONS.
+1. Set your goal (e.g. running a marathon, losing 40kg)
+2. Set aside decision anxiety and choose a reasonably promising routine: just pick a process (that matches your current fitness level). Don’t worry about which training program is "best", especially because you have no way of knowing which program is best for you.
+3. If necessary, customize your process to be extremely specific (e.g. run 2 km on Monday, Tuesday....): A good process tells you precisely what you need to accomplish at every step along the way. That way you know exactly what to do, and you know when you have actually accomplished what you need to do.
+4. Rework your schedule: All your training will naturally take time, and freeing up that time means changing your current routine. Maybe you’ll stop lifting weights. Maybe you’ll start getting up earlier.
+5. Map out your daily plan
+6. Work the process. Maybe that first 2 km run was too hard and you had to walk some portion of it. That’s okay; just make sure you complete the 2 km.
+
+Inevitable success is the best success of all — and it will happen when you set your goal, forget your goal, and focus on working your process.
+
 
 ## Happiness Comes to Serial Achievers
 So go ahead. Be a professional serial achiever. Embrace your “and.” Take

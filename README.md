@@ -1,44 +1,16 @@
 # Motivation for Everybody
 
-The problem also isn’t a lack of willpower, even though conventional
-wisdom would have us think that greater willpower is what separates the
-achievers from the dreamers.
+Motivation is known to be a prerequisite to starting a tedious learning process—a spark necessary to get you going. In this post, we uncover the myths behind what motivation really is and where to get it from. This is for everyone who hasn't achieved ... yet!
 
 ## Motivation Is Not the Spark
-I thought motivation was a
-prerequisite to starting a tedious learning process—a spark necessary to get me
-going. But motivation is really a result. Motivation is the fire that starts burning
-after you manually, painfully, coax it into existence, and it feeds on the
-satisfaction of seeing yourself make progress. The problem with waiting for
-motivation to strike is that it almost never comes with enough voltage to actually
-get you started.
 
-Most people are confused about the source of motivation. They think
-motivation is the spark that automatically produces lasting eagerness to do hard
-work; the greater the motivation, the more effort you’re willing to put in.
-Actually, motivation is a result. Motivation is the pride you take in work
-you have already done—which fuels your willingness to do even more.
-That’s why tips for how to feel more motivated often fall short. Most of that
-advice can be boiled down to “You can be more motivated. All you have to do is
-dig deep into your mind and find that motivation within.”
+The problem also isn’t a lack of willpower, even though conventional wisdom would have us think that greater willpower is what separates the achievers from the dreamers. The real problem is *motivation*.
 
-Small successes are fun—and motivating.
-That’s why you already have everything you need.
-That’s why motivation isn’t something you have. Motivation is something
-you get, from yourself, automatically, from feeling good about achieving small
-successes.
+Most people are confused about the source of motivation. They think motivation is the spark that automatically produces lasting eagerness to do hard work; the greater the motivation, the more effort you’re willing to put in. Actually, motivation is a **result**. Motivation is the pride you take in work you have already done—which fuels your willingness to do even more. Motivation is the fire that starts burning after you manually, painfully, coax it into existence, and it feeds on the satisfaction of seeing yourself make progress.
 
-The key is to enjoy the feeling of success that comes from improving in
-some small way . . . and then rinse and repeat, over and over again.
+The problem with waiting for motivation to strike is that it almost never comes with enough voltage to actually get you started. There is only one recipe for gaining motivation: **success**. Not huge, life-changing successes, but small ones. Small successes are fun—and motivating. That’s why you already have everything you need. That’s why motivation isn’t something you have. Motivation is something you get, from yourself, automatically, from feeling good about achieving small successes.
 
-Hopefully you see where this is going. Each little success is motivating.
-Each little success gives you confidence. The accumulation of small successes
-makes the process, um, maybe not fun, but definitely rewarding—and that’s all
-you need to keep going.
-
-In short, the process looks like this:
-Success → Motivation → More Success → More Motivation → More
-Success = Becoming
+The key is to enjoy the feeling of success that comes from improving in some small way . . . and then rinse and repeat, over and over again. Each little success is motivating. Each little success gives you confidence. The accumulation of small successes makes the process rewarding—and that’s all you need to keep going.
 
 ## The Greater Your Focus, the Lower Your Chances of Success
 Incredibly successful people set a goal and then focus all their attention on

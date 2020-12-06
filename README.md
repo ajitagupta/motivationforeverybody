@@ -61,6 +61,7 @@ Step 4: Refuel often
 Step 5: Create reminders of your long-term goals
 Step 6: Remove temptation altogether
 
+
 ## One Question Provides Nearly Every Answer
 Ask yourself, “Will this keep me
 from following my process?”

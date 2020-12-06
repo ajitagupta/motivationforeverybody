@@ -28,7 +28,7 @@ The key is to set a goal, use it as a target that helps you create a plan for ac
 
 ## How to Create a Successful Process
 
-Let’s start with what you need to do in order to succeed.
+Here is what you need to do in order to succeed.
 
 1. Set your goal (e.g. running a marathon, losing 40 kg)
 2. Set aside decision anxiety and choose a reasonably promising routine: just pick a process (that matches your current fitness level). Don’t worry about which training program is "best", especially because you have no way of knowing which program is best for you.
@@ -36,6 +36,7 @@ Let’s start with what you need to do in order to succeed.
 4. Rework your schedule: All your training will naturally take time, and freeing up that time means changing your current routine. Maybe you’ll stop lifting weights. Maybe you’ll start getting up earlier.
 5. Map out your daily plan
 6. Work the process. Maybe that first 2 km run was too hard and you had to walk some portion of it. That’s okay; just make sure you complete the 2 km.
+7. Your results may vary, so adapt accordingly. For example, most people need greater time to recover from exercise as they age - our bodies don’t recover as quickly from high-intensity or long-duration workouts.
 
 Inevitable success is the best success of all — and it will happen when you set your goal, forget your goal, and focus on working your process.
 

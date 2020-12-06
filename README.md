@@ -30,7 +30,7 @@ The key is to set a goal, use it as a target that helps you create a plan for ac
 
 Let’s start with what you need to do in order to succeed.
 
-1. Set your goal (e.g. running a marathon, losing 40kg)
+1. Set your goal (e.g. running a marathon, losing 40 kg)
 2. Set aside decision anxiety and choose a reasonably promising routine: just pick a process (that matches your current fitness level). Don’t worry about which training program is "best", especially because you have no way of knowing which program is best for you.
 3. If necessary, customize your process to be extremely specific (e.g. run 2 km on Monday, Tuesday....): A good process tells you precisely what you need to accomplish at every step along the way. That way you know exactly what to do, and you know when you have actually accomplished what you need to do.
 4. Rework your schedule: All your training will naturally take time, and freeing up that time means changing your current routine. Maybe you’ll stop lifting weights. Maybe you’ll start getting up earlier.

@@ -51,41 +51,15 @@ because that’s the best way to wind up unhappy and unfulfilled. But you can ha
 
 
 ## To Gain Incredible Willpower . . . Need Less Willpower
-The purpose of this book is to help you achieve huge goals. But
-accomplishing a huge goal takes time.
-So let’s start small. Success → Motivation → More Success → More
-Motivation creates an awesomely virtuous cycle, so why not gain some
-immediate successes that will motivate you to knock off even bigger goals?
-And while we’re at it, let’s do so in a way that helps you develop an
-attribute most people feel they struggle with—willpower—and, in the process,
-make willpower irrelevant.
-Are we trying to accomplish multiple things at once? Absolutely. The best
-processes not only let you achieve an immediate goal but also help you gain
-skills and confidence that allow you to achieve other goals.
 
-Step 1: Let everyone know you won’t be available.
-Step 2: Decide how long you will work.
-Step 3: Don’t just set a deadline. Totally commit to hitting that deadline.
-Step 4: Start your EPD at an unusual time.
-Step 5: Delay and space out your rewards.
-Step 6: Refuel before you think you need to refuel.
-Step 7: Take productive breaks, not relaxation breaks.
-Step 8: Take your breaks at a counterintuitive moment.
-Step 9: Don’t stop until you’re done—even if finishing takes longer than expected.
+Willpower isn’t something you either have or don’t have. Here are some tips you can start using today to help you accomplish what you want to accomplish, without needing to possess incredible willpower - or, really, any willpower at all. The process starts with designing your life so it supports your goals.
 
-Willpower isn’t something you either have or don’t have.
-Here are some tips you can start using today to help you
-accomplish what you want to accomplish, without needing to possess incredible
-willpower—or, really, any willpower at all.
-The process starts with designing your life so it supports your goals.
-
-Step 1: Eliminate as many choices as possible.
-Step 2: Make decisions tonight so you won’t need to make them
-tomorrow.
-Step 3: Do the hardest things you need to do first.
-Step 4: Refuel often.
-Step 5: Create reminders of your long-term goals.
-Step 6: Remove temptation altogether.
+Step 1: Eliminate as many choices as possible
+Step 2: Make decisions tonight so you won’t need to make them tomorrow
+Step 3: Do the hardest things you need to do first
+Step 4: Refuel often
+Step 5: Create reminders of your long-term goals
+Step 6: Remove temptation altogether
 
 ## One Question Provides Nearly Every Answer
 Ask yourself, “Will this keep me

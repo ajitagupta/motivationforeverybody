@@ -78,40 +78,10 @@ When you spend time with a superstar, when you try to do what the pros do, that 
 
 Embrace the challenge, embrace the "pain," embrace the fact that you will stretch and push yourself beyond your normal limits . . . because every time you do, you’ll feel motivated to do it again.
 
-## Do More by Doing Less
-How can you free up time so you can apply other achievement strategies to
-the things you do best, and learn to perform those things even better than you
-already do? That’s hard, because if you’re already somewhat successful, success tends to
-create clutter: more meetings, more projects, more decisions, more items on your
-to-do list. But often doing more can mean achieving less. That’s why, once again, subtraction can be the best addition, especially
-when you streamline your day and, in the process, your life.
-And the easiest way to do that is to start saying no.
-
-In fact, if you want to achieve a huge goal, as well as succeed at all your
-other responsibilities, you need to learn how to say no to most things that come
-your way. Otherwise other people—and other choices—will place incredible
-demands on your most valuable resource: your time. Ask yourself two questions:
-1) “Will Doing This Benefit Me in Some Way?”
-Ruthlessly evaluate every “opportunity” that comes your way. Remember,
-every time you say yes, you take time away from doing what you do best.
-Make sure that “yes” is genuinely worth it.
-2) “Is This More Important Than What I’m Currently Doing?”
-Most of the time you’ll find that what you’re currently doing is more
-important. Don’t grab every new shiny thing in the hope that it will somehow
-make you happier.
-
-Instead of doing a total professional or personal makeover, the easiest way is to
-start small. Here are some basic things to eliminate that will free up chunks of
-time to allow you to spend more of your time doing what you do best.
 
 ## The Bottom Line
-If you have doubts or fears, you’re not alone. Everyone else has, or had, the
-same fears. Take heart in that fact—and then hold your leg down and keep
-charging. You’ll find you had nothing to be afraid of . . . and that you can
-overcome other fears you may have.
-If you’re feeling low, put your head down and focus on your process. You’ll
-improve—and you’ll gain the motivation you feel you lack.
-Your dreams are important, but your plan is what will allow you to achieve
-your goals and live out your dreams.
-Don’t wait for motivation. Get started. Work your plan.
-When you do, you’ll find all the motivation you need.
+If you have doubts or fears, you’re not alone. Everyone else has, or had, the same fears. Take heart in that fact - and then hold your leg down and keep charging. You’ll find you had nothing to be afraid of . . . and that you can overcome other fears you may have.
+
+If you’re feeling low, put your head down and focus on your process. You’ll improve - and you’ll gain the motivation you feel you lack.
+
+Your dreams are important, but your plan is what will allow you to achieve your goals and live out your dreams. Don’t wait for motivation. Get started. Work your plan. When you do, you’ll find all the motivation you need.

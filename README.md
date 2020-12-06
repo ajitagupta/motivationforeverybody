@@ -1,11 +1,11 @@
 # Motivation for Everybody
 
-Motivation is known to be a prerequisite to starting a tedious learning process—a spark necessary to get you going. In this post, we uncover the myths behind what motivation really is and where to get it from. This is for everyone who hasn't achieved ... yet!
+Motivation is known to be a prerequisite to starting a tedious learning process - a spark necessary to get you going. In this post, we uncover the myths behind what motivation really is and where to get it from. This is for everyone who hasn't achieved ... yet!
 
 
 ## Motivation Is Not the Spark
 
-The problem also isn’t a lack of willpower, even though conventional wisdom would have us think that greater willpower is what separates the achievers from the dreamers. The real problem is *motivation*.
+The problem isn't a lack of willpower, even though conventional wisdom would have us think that greater willpower is what separates the achievers from the dreamers. The real problem is *motivation*.
 
 Most people are confused about the source of motivation. They think motivation is the spark that automatically produces lasting eagerness to do hard work; the greater the motivation, the more effort you’re willing to put in. Actually, motivation is a **result**. Motivation is the pride you take in work you have already done—which fuels your willingness to do even more. Motivation is the fire that starts burning after you manually, painfully, coax it into existence, and it feeds on the satisfaction of seeing yourself make progress.
 

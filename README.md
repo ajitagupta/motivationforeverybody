@@ -69,23 +69,6 @@ If it will, don’t do it.
 Process is everything. Routine is everything.
 Let nothing stand in its way.
 
-## Why Work Smarter When You Can Work Your Number?
-
-Working your number is based on consistently doing, over and over and over
-again, the things that make the biggest difference in your life. In short, working
-
-your number is about grinding: working hard every day to achieve your long-
-term goals. improving—at anything—is always fun.
-
-* Reaching and Repeating: Try to do what you can’t do—yet. That’s how you learn.
-* Engagement: Practice must command your attention and make you feel emotionally invested
-in striving for a goal. You’ll try harder and be more engaged, and you’ll improve more rapidly.
-* Purposefulness: Practice must directly connect to the skill you want to build.
-* Strong, Speedy Feedback: Practice must provide an immediate and consistent flow of accurate information
-about performance.
-* Focus on other people: Work your number by giving. Greater Autonomy and Independence, Clearer Expectations, More Meaningful Objectives, Give a Better Sense of Purpose, Give More Opportunities to Provide Significant Input, Give a Better Sense of Connection, Give Greater Consistency, Give Private Criticism, Give Public Praise, Give Everyone a Chance for a Meaningful Future, Compliment them for something
-they would least expect. (Expected feels good. Unexpected makes an even bigger impact.). Then you can use that gratification and fulfillment to motivate you to try the
-next strategy.
 
 ## You Don’t Need a Coach; You Need a Pro
 Whom you choose to admire—and it is a choice—says more about you than

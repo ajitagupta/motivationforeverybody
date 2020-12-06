@@ -85,3 +85,6 @@ If you have doubts or fears, you’re not alone. Everyone else has, or had, the 
 If you’re feeling low, put your head down and focus on your process. You’ll improve - and you’ll gain the motivation you feel you lack.
 
 Your dreams are important, but your plan is what will allow you to achieve your goals and live out your dreams. Don’t wait for motivation. Get started. Work your plan. When you do, you’ll find all the motivation you need.
+
+
+Based on the book by Jeff Haden: [The Motivation Myth](https://www.amazon.com/The-Motivation-Myth-Jeff-Haden-audiobook/dp/B078KGXJ8C/ref=sr_1_1?dchild=1&keywords=motivation+myth&qid=1607273586&sr=8-1) 

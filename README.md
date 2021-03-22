@@ -38,11 +38,11 @@ Here is what you need to do in order to succeed.
 6. Work the process. Maybe that first 2 km run was too hard and you had to walk some portion of it. That’s okay; just make sure you complete the 2 km.
 7. Your results may vary, so adapt accordingly. For example, most people need greater time to recover from exercise as they age - our bodies don’t recover as quickly from high-intensity or long-duration workouts.
 
-Inevitable success is the best success of all — and it will happen when you set your goal, forget your goal, and focus on working your process.
+Inevitable success is the best success of all - and it will happen when you set your goal, forget your goal and focus on working your process.
 
 
 ## Happiness Comes to Serial Achievers
-Think about what you do well, or would like to do well, and, most important, would really enjoy doing. Don’t choose an "and" you feel you should choose. Pick a side hustle your inner twenty-year-old will love. Being a serial achiever is a chance to explore, to delve, to expand, even to indulge - but with a purpose.
+Think about what you a) do well or would like to do well, **and** b) would really enjoy doing. Don’t choose an "and" you feel you should choose. Pick a side hustle your inner twenty-year-old will love. Being a serial achiever is a chance to explore, to delve, to expand, even to indulge - but with a purpose.
 
 The beauty of serial achievement is that over time you become more than one thing. You can be a Web designer and a musician and an athlete . . . and then you can become something else as well, knowing that when you have achieved a certain level of skill or experience you can work to achieve something else.
 
@@ -63,20 +63,16 @@ Step 6: Remove temptation altogether
 
 
 ## One Question Provides Nearly Every Answer
-Ask yourself, “Will this keep me
-from following my process?”
-If it will, don’t do it.
-Process is everything. Routine is everything.
-Let nothing stand in its way.
+Ask yourself, “Will this keep me from following my process?” If it will, don’t do it. Process is everything. Routine is everything. Let nothing stand in its way.
 
 
 ## You Don’t Need a Coach; You Need a Pro
 
-Stop comparing yourself with yourself. Stop comparing yourself with the people around you. Go see a superstar in action. Whether it’s a speaker, a musician, a performer, an athlete, or an entrepreneur, find a way to expose yourself to exceptional skill, exceptional expertise, and exceptional talent.
+Go see a superstar in action. Whether it’s a speaker, a musician, a performer, an athlete, or an entrepreneur, find a way to expose yourself to exceptional skill, exceptional expertise and exceptional talent.
 
 When you spend time with a superstar, when you try to do what the pros do, that experience will automatically ratchet your own internal limits to a higher level. While you may never be as good, when superstar performance is your bar, you automatically set your goals higher - and that makes you achieve more. Stop comparing your present self with your past self. Start comparing your present self - regardless of how far you think you have already come - with what is actually possible.
 
-Embrace the challenge, embrace the "pain," embrace the fact that you will stretch and push yourself beyond your normal limits . . . because every time you do, you’ll feel motivated to do it again.
+Embrace the challenge, embrace the "pain," embrace the fact that you will stretch and push yourself beyond your normal limits ... because every time you do, you’ll feel motivated to do it again.
 
 
 ## The Bottom Line

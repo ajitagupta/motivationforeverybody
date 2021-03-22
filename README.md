@@ -7,11 +7,11 @@ Motivation is known to be a prerequisite to starting a tedious learning process 
 
 The problem isn't a lack of willpower, even though conventional wisdom would have us think that greater willpower is what separates the achievers from the dreamers. The real problem is *motivation*.
 
-Most people are confused about the source of motivation. They think motivation is the spark that automatically produces lasting eagerness to do hard work; the greater the motivation, the more effort you’re willing to put in. Actually, motivation is a **result**. Motivation is the pride you take in work you have already done—which fuels your willingness to do even more. Motivation is the fire that starts burning after you manually, painfully, coax it into existence, and it feeds on the satisfaction of seeing yourself make progress.
+Most people are confused about the source of motivation. They think motivation is the spark that automatically produces lasting eagerness to do hard work; the greater the motivation, the more effort you’re willing to put in. Actually, motivation is a **result**. Motivation is the pride you take in work you have already done-which fuels your willingness to do even more. Motivation is the fire that starts burning after you manually, painfully, coax it into existence, and it feeds on the satisfaction of seeing yourself make progress.
 
 The problem with waiting for motivation to strike is that it almost never comes with enough voltage to actually get you started. There is only one recipe for gaining motivation: **success**. Not huge, life-changing successes, but small ones. Small successes are fun—and motivating. That’s why you already have everything you need. That’s why motivation isn’t something you have. Motivation is something you get, from yourself, automatically, from feeling good about achieving small successes.
 
-The key is to enjoy the feeling of success that comes from improving in some small way . . . and then rinse and repeat, over and over again. Each little success is motivating. Each little success gives you confidence. The accumulation of small successes makes the process rewarding—and that’s all you need to keep going.
+Each little success is motivating. Each little success gives you confidence. The accumulation of small successes makes the process rewarding-and that’s all you need to keep going.
 
 ## The Greater Your Focus, the Lower Your Chances of Success
 Incredibly successful people set a goal and then, surprisingly, they forget the goal.

@@ -7,19 +7,19 @@ Motivation is known to be a prerequisite to starting a tedious learning process 
 
 The problem isn't a lack of willpower, even though conventional wisdom would have us think that greater willpower is what separates the achievers from the dreamers. The real problem is *motivation*.
 
-Most people are confused about the source of motivation. They think motivation is the spark that automatically produces lasting eagerness to do hard work; the greater the motivation, the more effort you’re willing to put in. Actually, motivation is a **result**. Motivation is the pride you take in work you have already done-which fuels your willingness to do even more. Motivation is the fire that starts burning after you manually, painfully, coax it into existence, and it feeds on the satisfaction of seeing yourself make progress.
+Most people are confused about the source of motivation. They think motivation is the spark that automatically produces lasting eagerness to do hard work; the greater the motivation, the more effort you’re willing to put in. Actually, motivation is a **result**. Motivation is the pride you take in work you have already done - which fuels your willingness to do even more. Motivation is the fire that starts burning after you manually, painfully, coax it into existence, and it feeds on the satisfaction of seeing yourself make progress.
 
-The problem with waiting for motivation to strike is that it almost never comes with enough voltage to actually get you started. There is only one recipe for gaining motivation: **success**. Not huge, life-changing successes, but small ones. Small successes are fun—and motivating. That’s why you already have everything you need. That’s why motivation isn’t something you have. Motivation is something you get, from yourself, automatically, from feeling good about achieving small successes.
+The problem with waiting for motivation to strike is that it almost never comes with enough voltage to actually get you started. There is only one recipe for gaining motivation: **success**. Not huge, life-changing successes, but small ones. Small successes are fun and motivating. That’s why you already have everything you need. That’s why motivation isn’t something you have. Motivation is something you get, from yourself, automatically, from feeling good about achieving small successes.
 
 Each little success is motivating. Each little success gives you confidence. The accumulation of small successes makes the process rewarding-and that’s all you need to keep going.
 
 ## The Greater Your Focus, the Lower Your Chances of Success
 Incredibly successful people set a goal and then, surprisingly, they forget the goal.
 
-Sure, the goal is still out there. But what they care about most is what they need to do today—and when they accomplish that, they are happy about today.
-They feel good about today. They feel good about themselves because they’ve accomplished what they set out to do today, and that sense of accomplishment gives them all the motivation they need to do what they need to do when tomorrow comes — because success, even tiny, incremental success, is the best motivational tool of all.
+Sure, the goal is still out there. But what they care about most is what they need to do today - and when they accomplish that, they are happy about today.
+They feel good about today. They feel good about themselves because they’ve accomplished what they set out to do today, and that sense of accomplishment gives them all the motivation they need to do what they need to do when tomorrow comes.
 
-The key is to set a goal, use it as a target that helps you create a plan for achieving it . . . and then do your best to forget all about that goal. The best use of a goal is to inform the process you will follow to achieve it. What’s the difference between a goal and a process? Your process is what you do to make your goal happen.
+The key is to set a goal, use it as a target that helps you create a plan for achieving it and then do your best to forget all about that goal. The best use of a goal is to inform the process you will follow to achieve it. What’s the difference between a goal and a process? Your process is what you do to make your goal happen.
 
 * If you’re a manager, your goal is to develop your employees. Your process is how you identify areas for improvement, create implementation plans, follow through on training and coaching and feedback. 
 * If you’re a teacher, your goal is to help your students reach their potential. Your process is how you craft your lectures, create slides and ancillary materials, find ways to motivate individual students.
